@@ -1,3 +1,3 @@
-詹喆麟是位來自台南市的使用者介面設計師  
+[赤狐](https://redfoxes.tw) 🦊 執行長暨設計總監  
 https://chelinchan.com  
 https://instagram.com/chelinchan24
